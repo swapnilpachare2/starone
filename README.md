@@ -1,1 +1,1 @@
-https://sappupachare.000webhostapp.com/staronech
+https://swapnilpachare2.github.io/starone
